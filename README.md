@@ -1,8 +1,9 @@
 
   
-![graphics by @cybersyndicate on tumblr!](https://64.media.tumblr.com/d0b3bfb55720d22922f0393fc2e72011/3f1a5f8cdc5fc44c-a8/s1280x1920/ab24516b19aa0e3751e2ec8168abb70e46ab9e35.pnj)
+![:3](https://64.media.tumblr.com/48b302870f75127efe114dff59ba5adf/77a0e572a57d748e-8a/s1280x1920/b7fc9509ba3c9241f22d3d8cece5e8638ebbade7.jpg)
 
  ㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤ [**atabook**](https://psycho100.atabook.org/) ㅤㅤㅤㅤ  [**main rentry**](https://rentry.co/MALIPO-KINICH) ㅤㅤㅤㅤ  [**linktree**](https://linktr.ee/ivancure) ㅤㅤㅤㅤ  [**straw**](https://tzukasatenma.straw.page/) ㅤㅤㅤㅤ  [**prnspage**](https://en.pronouns.page/@vidyadhara)
+  ㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤ will decorate this in the future !!!.. shotout to all my oomfs btw love yall >_<
 
  ㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤ 
   ㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤ 
